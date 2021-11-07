@@ -1,0 +1,5 @@
+- Ex-Navodayan
+- Ex-Dakshana Scholar
+- Panasonic Scholar
+- Cricket lover
+- Serves *Humanity*
