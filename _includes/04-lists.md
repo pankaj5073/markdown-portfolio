@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Ex-Navodayan
+- Ex-Dakshana Scholar
+- Panasonic Scholar
+- Cricket lover
+- Serves *Humanity*
